@@ -21,3 +21,11 @@ Fotos collage
 ![3](https://github.com/user-attachments/assets/2b7967b5-01ef-4c34-89b0-c4b8bae6cf3d)
 ![2](https://github.com/user-attachments/assets/dfbf2bea-1a75-4032-b5ff-24977587237a)
 ![1](https://github.com/user-attachments/assets/ac4e566f-cf97-4f9c-81d5-87d5fcd6b0c6)
+collage arregladas
+![11](https://github.com/user-attachments/assets/2711c9e7-57ae-4956-994a-6adb7180422b)
+![9](https://github.com/user-attachments/assets/044f7c2c-1caf-4935-9481-2d6d4262d69e)
+![6](https://github.com/user-attachments/assets/b8fd6470-adca-43a9-a1f3-254e87d4de17)
+![4](https://github.com/user-attachments/assets/3b07d642-44ff-44d1-b666-cbee103e0990)
+![1](https://github.com/user-attachments/assets/eee97784-5264-42d5-97b3-53c08e8ab7a7)
+foto sobre mi
+![836095bc-6b64-43cb-ab0b-56b134f65ba9](https://github.com/user-attachments/assets/6aa4a656-7434-4845-8964-2c4c8a0fd46e)
