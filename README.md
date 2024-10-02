@@ -9,6 +9,10 @@
 ![3](https://github.com/user-attachments/assets/d9880f41-9b95-49e4-9251-c7a00566a81d)
 ![2](https://github.com/user-attachments/assets/96ea61cc-eb84-4944-846a-ca9c24d42efb)
 ![1](https://github.com/user-attachments/assets/86f61044-5fad-4bee-8bbd-7807190efa46)
+![12](https://github.com/user-attachments/assets/a20aee34-5ea8-431a-9f53-692afac252c3)
+![11](https://github.com/user-attachments/assets/f1251c1d-b16f-4ead-98a3-3186371ea3d1)
+
+
 
 Fotos collage
 ![10](https://github.com/user-attachments/assets/ffc19861-0b30-46e0-b17b-ccfa38ee725e)
@@ -26,6 +30,9 @@ collage arregladas
 ![9](https://github.com/user-attachments/assets/044f7c2c-1caf-4935-9481-2d6d4262d69e)
 ![6](https://github.com/user-attachments/assets/b8fd6470-adca-43a9-a1f3-254e87d4de17)
 ![4](https://github.com/user-attachments/assets/3b07d642-44ff-44d1-b666-cbee103e0990)
-![1](https://github.com/user-attachments/assets/eee97784-5264-42d5-97b3-53c08e8ab7a7)
+![1](https://github.com/user-atta![3](https://github.com/user-attachments/assets/1aceb80a-71d4-4171-9ad7-05c5a9d8e0ea)
+![2](https://github.com/user-attachments/assets/d590fc2b-d5a7-4bb5-af66-d1351d9e76ea)
+chments/assets/eee97784-5264-42d5-97b3-53c08e8ab7a7)
+
 foto sobre mi
 ![836095bc-6b64-43cb-ab0b-56b134f65ba9](https://github.com/user-attachments/assets/6aa4a656-7434-4845-8964-2c4c8a0fd46e)
